@@ -1,4 +1,4 @@
-
+Get the ultimate Notion for macOS extension with advanced Extension for Notion for macOS - quick search and custom shortcuts. Featuring quick search and custom shortcuts, it's the
 
 
 
